@@ -1,2 +1,2 @@
 # testing
-testing repo teluguskillhub ranadheer vaitla.
+testing repo teluguskillhub ranadheer vaitla..
